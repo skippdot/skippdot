@@ -20,4 +20,4 @@ Remote contractor from Burgas, Bulgaria. Open to new contracts.
 
 #### Contact
 
-[LinkedIn](https://www.linkedin.com/in/shamaiev) · stepan@cloudpeak.cloud
+[LinkedIn](https://www.linkedin.com/in/shamaiev)
